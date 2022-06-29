@@ -1,0 +1,1 @@
+# Gothic mod screenshots
